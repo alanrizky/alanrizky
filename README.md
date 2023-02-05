@@ -1,1 +1,1 @@
-Udah lulus, tetep belom bisa ngoding. Alhamdulillah pengangguran. Xixixi
+Udah lulus, tetep belom bisa ngoding. Dah kerja di PT. ISS INDONESIA penempatan PT. HM SAMPOERNA Tbk.
